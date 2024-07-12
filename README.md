@@ -1,2 +1,2 @@
 # urban-computing-machine
-https://praweensoni.github.io/happy-Birthday-wishes-card-project-/
+https://pinkerusham.github.io/happy-Birthday-wishes-card-project-/
